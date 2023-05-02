@@ -10,4 +10,6 @@ _My name is Ledir Kreuzberg_ 🦉
 
 📧 ledir.marcelino@escola.pr.gov.br
 
-![](https://user-images.githubusercontent.com/131891435/234958443-1b81f875-3aee-4cf6-9485-ee2fe947ef80.png)
+![](https://media.tenor.com/SkfTRV3YewQAAAAM/owl-chilling.gif)
+
+![](https://media.tenor.com/m02pOx9OYJ0AAAAM/owl-turning-its-head-chile-anyways.gif)
