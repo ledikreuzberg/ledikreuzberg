@@ -1,5 +1,8 @@
 ### Hi there 👩‍🏫
 
+![](https://user-images.githubusercontent.com/131891435/235960426-cac8abbc-ebee-4b30-8403-883f05849e80.png)
+)
+
 
 **ledikreuzberg/ledikreuzberg** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
